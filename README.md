@@ -1,0 +1,2 @@
+# Soctrang
+le quyen nh
